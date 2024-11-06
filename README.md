@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JoeKil-IT
-- 👀 I’m interested in Playing Video Games
+- 👀 I’m interested in Playing Video Games during part time. Love coding as well.
 - 🌱 I’m currently learning Diploma In Ict
 - 💞️ I’m looking to collaborate on Web developing
   
